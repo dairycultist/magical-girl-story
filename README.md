@@ -12,6 +12,6 @@ the twins are always happiest when their brother is visiting their workplace (de
 
 **Mother:** very levelheaded/mature, but overtly intimate. long purple hair
 
-**Sisters:** rambunctious/energetic, frat girl energy, often wear crop tops and miniskirts. Blue one has short hair, red one has long hair
+**Sisters:** rambunctious/energetic, frat girl energy, often wear crop tops and miniskirts. Blue one has short hair, red one has long hair. They work at a maid café
 
-<img align="left" height="200" src="red_and_blue_sisters.png"><img align="left" height="200" src="purple_mother.png">
+<img align="left" height="200" src="red_and_blue_sisters_work.png"><img align="left" height="200" src="purple_mother.png"><img align="left" height="200" src="red_sister_casual.png">
