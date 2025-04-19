@@ -1,9 +1,21 @@
 consistent design across all girls' outfits (frilled leotard)
 
-magical gold Golden Shimmer
+??
+- **Magical girl name:** Golden Shimmer (gold)
+- **Body:** Straight up fat
+- **Personality:** ??
 
-Kanokogi Shizuka (鹿子木静香) = magical purple Glitter Blossom = unconfident outcast
+Kanokogi Shizuka (鹿子木静香)
+- **Magical girl name:** Glitter Blossom (purple)
+- **Body:** Hips + chub
+- **Personality:** Unconfident outcast
 
-magical red Brilliant Flame
+??
+- **Magical girl name:** Brilliant Flame (red)
+- **Body:** Slim
+- **Personality:** ??
 
-Ishikawa Puro (石川ぷろ) = magical blue Shining Sea = smiling idiot
+Ishikawa Puro (石川ぷろ)
+- **Magical girl name:** Shining Sea (blue)
+- **Body:** Boobs + chub
+- **Personality:** Smiling idiot
