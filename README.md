@@ -10,7 +10,12 @@ Kanokogi Shizuka (鹿子木静香)
 - **Body:** Hips + chub
 - **Personality:** Unconfident outcast
 
-Kanokogi Shōko (鹿子木しょうこ)
+Kanokogi _ (鹿子木_)
+- **Magical girl name:** _ (black _)
+- **Body:** 
+- **Personality:** 
+
+_ Shōko (_しょうこ)
 - **Magical girl name:** Brilliant Flame (red flame)
 - **Body:** Slim
 - **Personality:** Inconsiderate genius
