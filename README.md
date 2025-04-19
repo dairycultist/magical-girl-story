@@ -6,4 +6,4 @@ purple = glitter blossom
 
 red = brilliant flame
 
-blue = shining sea
+石川ぷろ = Ishigawa Puro = blue = shining sea = idiot
