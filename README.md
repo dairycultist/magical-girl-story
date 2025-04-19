@@ -1,9 +1,9 @@
 consistent design across all girls' outfits (frilled leotard)
 
-gold = golden shimmer
+magical gold Golden Shimmer
 
-purple = glitter blossom
+Kanokogi Shizuka (鹿子木静香) = magical purple Glitter Blossom = unconfident outcast
 
-red = brilliant flame
+magical red Brilliant Flame
 
-石川ぷろ = Ishigawa Puro = blue = shining sea = idiot
+Ishikawa Puro (石川ぷろ) = magical blue Shining Sea = smiling idiot
